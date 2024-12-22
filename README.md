@@ -1,0 +1,1 @@
+actualmente aprendiendo phyton....😶‍🌫️🥱
